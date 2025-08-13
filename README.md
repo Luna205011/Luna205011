@@ -1,3 +1,5 @@
+![](https://files.catbox.moe/fb2b2v.png)
+
 🐾 / 🦈 / ⚙️ ˖° ⸝⸝ **rodger's github intro.**
 
 ╰ name(s) ﹕rodger , cyberpunk , mechanical and baller .
