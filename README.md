@@ -18,6 +18,8 @@ ________________________________________________________________________________
 
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; ╰&nbsp;&nbsp;&nbsp; . ( ⸝⸝ this is mostly just for ponytown , but honestly you can just see it as whatever !! . ⸝⸝
 
+![](https://i.imgur.com/aNrlVvf.gif)
+
 ___________________________________________________________________________________________________________
 
 ![](https://files.catbox.moe/p4ku5k.png)
