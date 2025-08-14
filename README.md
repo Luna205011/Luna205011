@@ -15,6 +15,7 @@ ________________________________________________________________________________
 
 ︵&nbsp;&nbsp;&nbsp;. ( ⸝⸝ extra ﹕c+h and interact friendly / encouraged + interaction .<br/> ⸝⸝
 .&nbsp;&nbsp;&nbsp;- ★ ꒰ ⸝⸝ you'll see me around docks for most of the time as i like roleplaying . ⸝⸝
+╰&nbsp;&nbsp;&nbsp . ( ⸝⸝ basic dni , plus i block freely . ⸝⸝
 
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; ╰&nbsp;&nbsp;&nbsp; . ( ⸝⸝ this is mostly just for ponytown , but honestly you can just see it as whatever !! . ⸝⸝
 
