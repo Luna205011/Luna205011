@@ -10,7 +10,7 @@ ________________________________________________________________________________
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; Nana, Shotgun, and Baller. ⸝⸝<br/>
 ︵&nbsp;&nbsp;&nbsp;. ( ⸝⸝ prns ﹕she / her . i'm a female . ⸝⸝
 
-╰&nbsp;&nbsp;&nbsp;. ★ ꒰ ⸝⸝ interests ⸝ fandoms ﹕roblox , phighting , regretevator ,<br/>
+╰&nbsp;&nbsp;&nbsp;. ★ ꒰ ⸝⸝ interests ⸝ fandoms ﹕roblox , phighting , regretevator , pokemon ,<br/>
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp; . forsaken , sewh , bugbo , bt ( blocktales ) , hfjONE !? . ⸝⸝
 
 ︵&nbsp;&nbsp;&nbsp;. ( ⸝⸝ extra ﹕c+h and interact friendly / encouraged + interaction .<br/> ⸝⸝
@@ -23,5 +23,3 @@ ________________________________________________________________________________
 ![](https://i.imgur.com/4LwtRHc.jpg)
 
 ___________________________________________________________________________________________________________
-
-![](https://files.catbox.moe/p4ku5k.png)
