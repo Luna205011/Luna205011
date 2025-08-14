@@ -21,7 +21,7 @@ ________________________________________________________________________________
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; ╰&nbsp;&nbsp;&nbsp; . ( ⸝⸝ this is mostly just for ponytown , but honestly you can just see it as whatever !! . ⸝⸝
 
 ![](https://i.imgur.com/oab1j4c.png)<br/>
-![](https://i.imgur.com/aNrlVvf.gif)<br/>
-![](https://i.imgur.com/4LwtRHc.jpg)
+![](https://i.imgur.com/4LwtRHc.jpg)<br/>
+![](https://i.imgur.com/aNrlVvf.gif)
 
 ___________________________________________________________________________________________________________
