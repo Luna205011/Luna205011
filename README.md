@@ -13,7 +13,7 @@ ________________________________________________________________________________
 ╰&nbsp;&nbsp;&nbsp;. ★ ꒰ ⸝⸝ interests ⸝ fandoms ﹕roblox , phighting , regretevator , pokemon ,<br/>
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp; . forsaken , sewh , bugbo , bt ( blocktales ) , hfjONE !? . ⸝⸝
 
-︵&nbsp;&nbsp;&nbsp;. ( ⸝⸝ extra ﹕c+h and interact friendly / encouraged + interaction .<br/> ⸝⸝
+︵&nbsp;&nbsp;&nbsp;. ( ⸝⸝ extra ﹕c+h and interact friendly / encouraged .<br/> ⸝⸝
 .&nbsp;&nbsp;&nbsp;- ★ ꒰ ⸝⸝ you'll see me around docks for most of the time as i like roleplaying . ⸝⸝
 
 ╰&nbsp;&nbsp;&nbsp;. ( ⸝⸝ basic dni , plus i block freely . ⸝⸝
