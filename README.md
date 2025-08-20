@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/5t9app.png)
 
-(( &nbsp;&nbsp;&nbsp; [Youtube](https://www.tiktok.com/@totallynot_ballerxd) &nbsp;&nbsp;&nbsp; [Tiktok](https://www.tiktok.com/@totallynot_ballerxd) &nbsp;&nbsp;&nbsp; [Strawpage](https://ballerxd.straw.page) &nbsp;&nbsp;&nbsp; [Roblox](https://www.roblox.com/users/3675579953/profile) &nbsp;&nbsp;&nbsp; ))
+(( &nbsp;&nbsp;&nbsp; [Youtube](https://youtube.com/@totallynot_ballerxd?si=nAVhg7msN_biXnXk) &nbsp;&nbsp;&nbsp; [Tiktok](https://www.tiktok.com/@totallynot_ballerxd) &nbsp;&nbsp;&nbsp; [Strawpage](https://ballerxd.straw.page) &nbsp;&nbsp;&nbsp; [Roblox](https://www.roblox.com/users/3675579953/profile) &nbsp;&nbsp;&nbsp; ))
 
 ___________________________________________________________________________________________________________
 
