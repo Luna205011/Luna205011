@@ -1,3 +1,5 @@
+![](https://files.catbox.moe/jvahyi.png)
+
 (( &nbsp;&nbsp;&nbsp; [Youtube](https://youtube.com/@totallynot_ballerxd?si=nAVhg7msN_biXnXk) &nbsp;&nbsp;&nbsp; [Tiktok](https://www.tiktok.com/@totallynot_ballerxd) &nbsp;&nbsp;&nbsp; [Strawpage](https://ballerxp.straw.page/) &nbsp;&nbsp;&nbsp; [Roblox](https://www.roblox.com/users/3675579953/profile) &nbsp;&nbsp;&nbsp; ))
 
 ___________________________________________________________________________________________________________
@@ -23,5 +25,3 @@ ________________________________________________________________________________
 ![](https://i.imgur.com/aNrlVvf.gif)
 
 ___________________________________________________________________________________________________________
-
-![](https://files.catbox.moe/jvahyi.png)
