@@ -11,7 +11,7 @@ ________________________________________________________________________________
 ︵&nbsp;&nbsp;&nbsp;. ( ⸝⸝ prns ﹕she / her . i'm a female . ⸝⸝
 
 ╰&nbsp;&nbsp;&nbsp;. ★ ꒰ ⸝⸝ interests ⸝ fandoms ﹕roblox , phighting , regretevator , pokemon ,<br/>
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp; . forsaken , sewh , bugbo , bt ( blocktales ) , hfjONE !? . ⸝⸝
+&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp; . BFS , sewh , bugbo , bt ( blocktales ) , hfjONE !? . ⸝⸝
 
 ︵&nbsp;&nbsp;&nbsp;. ( ⸝⸝ extra ﹕c+h and interact friendly / encouraged .<br/> ⸝⸝
 .&nbsp;&nbsp;&nbsp;- ★ ꒰ ⸝⸝ you'll see me around docks for most of the time as i like roleplaying . ⸝⸝
