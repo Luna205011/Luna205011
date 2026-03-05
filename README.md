@@ -18,7 +18,8 @@ ________________________________________________________________________________
 
 &nbsp;&nbsp;&nbsp;.  Basic dni, i block freely.
 
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; -  You probably just saw me from ponytown , but honestly you can just see me more active on any other game than that. >>
+&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; -  You probably just saw me from ponytown , but <br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; honestly you can just see me more active on any other game than that. >>
 
 ![](https://i.imgur.com/oab1j4c.png)<br/>
 ![](https://i.imgur.com/4LwtRHc.jpg)<br/>
