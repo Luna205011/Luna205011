@@ -4,21 +4,21 @@
 
 ___________________________________________________________________________________________________________
 
-🐾 / 🦈 / ⚙️ ˖° ⸝⸝ **rodger's github intro.**
+🐾 / 🦈 / ⚙️ &nbsp;&nbsp;&nbsp; **rodger's github intro.**
 
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; ╰ &nbsp;&nbsp;&nbsp; ꒰⸝⸝ name(s) and nickname(s) : Rodger, 052, Lunaruh,<br/>
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; Nana, Shotgun, and Baller. ⸝⸝<br/>
-︵&nbsp;&nbsp;&nbsp;. ( ⸝⸝ prns ﹕she / her , i'm a girl! . ⸝⸝
+&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; ╰ &nbsp;&nbsp;&nbsp; Hello hello! you can call me Rodger, Mayday, Lunaruh, <br/>
+&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; Nana, Shotgun, and Baller. All these names are preffered! <br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; preffered pronouns are she / her, please don't use any other .
 
-╰&nbsp;&nbsp;&nbsp;. ★ ꒰ ⸝⸝ interests ⸝ fandoms ﹕roblox , phighting , regretevator , pokemon ,<br/>
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp; . BFS , sewh , bugbo , BT ( blocktales ) , hfjONE !? . ⸝⸝
+&nbsp;&nbsp;&nbsp;. main fandoms are mostly Roblox (Boss fighting stages, admins), <br/>
+&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; Minecraft, Pokemon and Bugbo.
 
-︵&nbsp;&nbsp;&nbsp;. ( ⸝⸝ extra ﹕c+h and interact friendly / encouraged .<br/> ⸝⸝
-.&nbsp;&nbsp;&nbsp;- ★ ꒰ ⸝⸝ you'll see me around docks for most of the time as i like roleplaying . ⸝⸝
+&nbsp;&nbsp;&nbsp; (( c+h and interact friendly / encouraged, I don't bite! <br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; you'll mainly see me around docks for most of the time when i'm online as i enjoy roleplaying.
 
-╰&nbsp;&nbsp;&nbsp;. ( ⸝⸝ basic dni , i block freely . ⸝⸝
+&nbsp;&nbsp;&nbsp;.  basic dni, i block freely.
 
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; ╰&nbsp;&nbsp;&nbsp; . ( ⸝⸝ this is mostly just for ponytown , but honestly you can just see it for whatever. ⸝⸝
+&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; -  You probably just saw me from ponytown , but honestly you can just see on any other game. >>
 
 ![](https://i.imgur.com/oab1j4c.png)<br/>
 ![](https://i.imgur.com/4LwtRHc.jpg)<br/>
