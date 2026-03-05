@@ -8,17 +8,17 @@ ________________________________________________________________________________
 
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; ╰ &nbsp;&nbsp;&nbsp; Hello hello! you can call me Rodger, Mayday, Lunaruh, <br/>
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; Nana, Shotgun, and Baller. All these names are preffered! <br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; preffered pronouns are she / her, please don't use any other .
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Preffered pronouns are she / her, please don't use any other .
 
-&nbsp;&nbsp;&nbsp;. main fandoms are mostly Roblox (Boss fighting stages, admins), <br/>
+&nbsp;&nbsp;&nbsp;. Main fandoms are mostly Roblox (Boss fighting stages, admins), <br/>
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; Minecraft, Pokemon and Bugbo.
 
-&nbsp;&nbsp;&nbsp; (( c+h and interact friendly / encouraged, I don't bite! <br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; you'll mainly see me around docks for most of the time when i'm online as i enjoy roleplaying.
+&nbsp;&nbsp;&nbsp; (( C+H and interact friendly / encouraged, I don't bite! <br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; You'll mainly see me around docks for most of the time when i'm online as i enjoy roleplaying.
 
-&nbsp;&nbsp;&nbsp;.  basic dni, i block freely.
+&nbsp;&nbsp;&nbsp;.  Basic dni, i block freely.
 
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; -  You probably just saw me from ponytown , but honestly you can just see on any other game. >>
+&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; -  You probably just saw me from ponytown , but honestly you can just see me more active on any other game than that. >>
 
 ![](https://i.imgur.com/oab1j4c.png)<br/>
 ![](https://i.imgur.com/4LwtRHc.jpg)<br/>
