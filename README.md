@@ -6,7 +6,7 @@ ________________________________________________________________________________
 
 🐾 / 🦈 / ⚙️ &nbsp;&nbsp;&nbsp; **rodger's github intro.**
 
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; ╰ &nbsp;&nbsp;&nbsp; Hello hello! you can call me Rodger, Mayday, Lunaruh, <br/>
+&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; ╰ &nbsp;&nbsp;&nbsp; Hello hello! you can call me Mayday, 052, Lunaruh, <br/>
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; Nana, Shotgun, and Baller. All these names are preffered! <br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Preffered pronouns are she / her, please don't use any other .
 
