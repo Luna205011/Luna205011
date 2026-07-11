@@ -1,28 +1,3 @@
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![](https://files.catbox.moe/j7ehxy.png)
-
-(( &nbsp;&nbsp;&nbsp; [Youtube](https://youtube.com/@totallynot_ballerxd?si=nAVhg7msN_biXnXk) &nbsp;&nbsp;&nbsp; [Tiktok](https://www.tiktok.com/@totallynot_ballerxd) &nbsp;&nbsp;&nbsp; [Strawpage](https://ballerxo.straw.page/) &nbsp;&nbsp;&nbsp; ))
-
-___________________________________________________________________________________________________________
-
-🐾 / 🦈 / ⚙️ &nbsp;&nbsp;&nbsp; **rodger's github intro.**
-
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; ╰ &nbsp;&nbsp;&nbsp; Hello hello! you can call me Mayday, 052, Lunaruh, <br/>
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; Nana, Shotgun, and Baller. All these names are preffered! <br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Preffered pronouns are she / her, please don't use any other .
-
-&nbsp;&nbsp;&nbsp;. Main fandoms are mostly Roblox (Boss fighting stages, admins), <br/>
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; Minecraft, Pokemon and Bugbo.
-
-&nbsp;&nbsp;&nbsp; (( C+H and interact friendly / encouraged, I don't bite! <br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; You'll mainly see me around docks for most of the time when i'm online as i enjoy roleplaying.
-
-&nbsp;&nbsp;&nbsp;.  Basic dni, i block freely.
-
-&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; -  You probably just saw me from ponytown , but <br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; honestly you can just see me more active on any other game than that. >>
-
-![](https://files.catbox.moe/mlvtkf.png)<br/>
-![](https://i.imgur.com/4LwtRHc.jpg)<br/>
-![](https://i.imgur.com/aNrlVvf.gif)
-
-___________________________________________________________________________________________________________
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![](https://files.catbox.moe/nrindw.png)
+Nothing to see here,
+&nbsp;&nbsp;&nbsp; go back home?
