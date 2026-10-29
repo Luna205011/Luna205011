@@ -1,2 +1,4 @@
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![](https://files.catbox.moe/nrindw.png) <br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [Atabook](https://ballerxp.atabook.org) &nbsp;&nbsp;&nbsp;&nbsp; [Strawpage](https://ballerxo.straw.page/) &nbsp;&nbsp;&nbsp;&nbsp; [Youtube](https://youtube.com/@totallynot_ballerxd?si=nAVhg7msN_biXnXk) &nbsp;&nbsp;&nbsp;&nbsp; [Tiktok](https://www.tiktok.com/@totallynot_ballerxd)
+remake soon <br/>
+Rodger / Baller / 052 <br/>
+Refer to me as she / her only. <br/>
+[Atabook](https://ballerxp.atabook.org) [Strawpage](https://ballerxo.straw.page/) [Youtube](https://youtube.com/@totallynot_ballerxd?si=nAVhg7msN_biXnXk) [Tiktok](https://www.tiktok.com/@totallynot_ballerxd)
